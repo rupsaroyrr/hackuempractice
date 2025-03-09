@@ -1,2 +1,0 @@
-﻿# hackuempractice
-Raj Krish
